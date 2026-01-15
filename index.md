@@ -21,4 +21,4 @@ Reasonable measures are taken to protect data from unauthorized access.
 
 Contact
 If you have questions about this Privacy Policy, contact us at:
-Email: your@email.com
+Email: socob.datateam@gmai.com
